@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @q814
 - 👀 I’m interested in Cracking and rope maxxing
 - 🌱 I’m currently learning how to locate the clit on fat bitches
-- 💞️ I’m looking to collaborate on I dont know.
+- 💞️ I’m looking to collaborate on your mother))
 - 📫 How to reach me: tgk: https://t.me/eighteen812    - Discord: q814
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: ?
